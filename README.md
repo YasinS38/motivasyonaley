@@ -1,0 +1,2 @@
+# motivasyonaley
+belkiyigelirdiyedusundum
